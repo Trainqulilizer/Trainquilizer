@@ -1,4 +1,4 @@
-# [Trainquilizer 🚂](http://trainqulilizer.github.io/Trainquilizer/)
+# [Trainquilizer 🚂](http://trainqulilizer.github.io/)
 
 ## We are looking for feedback
 
