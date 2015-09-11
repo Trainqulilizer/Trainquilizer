@@ -11,3 +11,11 @@ Or maybe you didn't?
 Please tell us what you want to enjoy next time you are travelling with us:
 
 - [write a new issue](https://github.com/Trainqulilizer/Trainquilizer/issues/new)
+
+                .. ... .
+        OO Ooo°°_______________ _______________
+       O   ____ |    |        | |             |
+       ][__| (  |____|________| |°oO0°.O0°Oo°0|
+      (_______|_|____|________|_|_____________|
+        0 - 0      0       0       0       0
+    =============================================
